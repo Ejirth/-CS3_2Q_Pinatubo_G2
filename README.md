@@ -2,3 +2,6 @@
 
 # Eliezer Marc U. Espiritu
 A student from 9-Pinatubo
+
+# Joaquin Sebastian L. Umayan
+Also a student from 9-Pinatubo
