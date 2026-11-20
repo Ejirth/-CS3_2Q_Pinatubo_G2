@@ -5,3 +5,6 @@ A student from 9-Pinatubo
 
 # Joaquin Sebastian L. Umayan
 Also a student from 9-Pinatubo
+
+# Kryzchan Gabriel E. Ducusin
+A student from 9-Pinatubo too
