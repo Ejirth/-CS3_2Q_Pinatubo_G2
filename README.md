@@ -7,4 +7,4 @@ A student from 9-Pinatubo
 Also a student from 9-Pinatubo
 
 # Kryzchan Gabriel E. Ducusin
-A student from 9-Pinatubo too
+gimme creature capture game luck :DD I NEED GAMMAS. (sillyvanillysillyvanillysillyvanillysillyvanillysillyvanillysillyvanilly)
